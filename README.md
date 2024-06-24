@@ -1,1 +1,1 @@
-# Rebranding-BigTech-perceptions
+#Ребрендинг BigTech: Анализ пользовательского восприятия
